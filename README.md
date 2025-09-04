@@ -14,6 +14,6 @@
 
 ### 📫 Контакты  
 - 📧 [julinaz@mail.ru](mailto:julinaz@mail.ru)  
- 🔗 [LinkedIn](https://www.linkedin.com/in/юлия-азарова)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/юлия-назарова-a30a5393/)  
 - 🐙 [GitHub](https://github.com/JulyNZRV)  
 - 💬 [Telegram](https://t.me/JulyNo)  
